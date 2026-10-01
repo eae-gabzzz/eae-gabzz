@@ -73,7 +73,7 @@
 
   <p align="center">
       <samp>
-        ☀️
+        (11) 99610-0032
       </samp>
   </p>
 
